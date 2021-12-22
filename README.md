@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @Yohan.
-- 👀 I’m interested in rien
-- 🌱 I’m currently learning la programmation
+- 👀 I’m interested memes
+- 🌱 I’m currently learning programmation
 - 💞️ I’m looking to collaborate on ...
 - 📫 How to reach me : You can't.
 
